@@ -10,3 +10,6 @@
 ### Quote 3
 
 "Whatya get the f*ck outta here before I shove your quotation book up your fat f*cking ass" - Tony
+
+### Quote 4
+"Nuke the entire site from orbit - it's the only way to be sure" - Lt. Ripley
