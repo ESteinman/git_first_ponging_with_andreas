@@ -6,3 +6,7 @@
 
 ### Quote 2
 "Operator! Give me the number for 911!" - Homer J. Simpson
+
+### Quote 3
+
+"Whatya get the f*ck outta here before I shove your quotation book up your fat f*cking ass" - Tony
