@@ -13,3 +13,6 @@
 
 ### Quote 4
 "Nuke the entire site from orbit - it's the only way to be sure" - Lt. Ripley
+
+### Quote 5
+"Ack! Ack! Ack!" - Marsian Ambassador
